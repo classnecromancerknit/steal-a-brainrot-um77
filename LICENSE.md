@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with steal a brainrot Scripts custom, the #1 Script. Includes infinite resources and auto-farm for
 
 
 
